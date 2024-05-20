@@ -1,15 +1,11 @@
-- 👋 Hi, I’m @alipsg47
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+Hello to all friends
+This person is a fraud
+Please spread as much as you can so that others do not fall into the trap of this scammer
 
-<!---
-alipsg47/alipsg47 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+سلام به تمامی دوستان
+این شخص یک کلاهبردار هست
+لطفا تا میتوانید منتشر کنید تا دیگران در دام این کلاهبردار گیر نکنند
+
 Introducing the scammer
 mont3an wallet cracker
 Dear friends, please publish as much as you can so that this scammer is reported and others don't get into trouble.
